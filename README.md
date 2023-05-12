@@ -1,1 +1,1 @@
-Don't mind this, I don't kn ow what I am doing.
+Don't mind this, I don't know what I am doing.
